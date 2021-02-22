@@ -6,3 +6,5 @@ Hello Humans
 Anyone dwelling in the secret place of the Most High, will lodge under the shadow of the Almighty
 
 I will say to Jehovah; "You are my Refuge and my Stronghold, my God in whom I trust"
+
+For
