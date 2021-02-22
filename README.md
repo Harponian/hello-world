@@ -8,3 +8,4 @@ Anyone dwelling in the secret place of the Most High, will lodge under the shado
 I will say to Jehovah; "You are my Refuge and my Stronghold, my God in whom I trust"
 
 For
+Added to Branch 1
